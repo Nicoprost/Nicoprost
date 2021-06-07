@@ -6,7 +6,7 @@ _**Il était une fois**_,
 ## Nicolas prost Expérience
 
 régisseur lumière, photographe.  
-  les concepts visuels sont pour nos yeux, le choix de l'harmonie.
+  >"les concepts visuels sont pour nos yeux, le choix de l'harmonie."
 
 ## Activité
 
